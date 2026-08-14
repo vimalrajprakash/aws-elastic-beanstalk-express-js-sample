@@ -1,1 +1,1 @@
-Chief Minister of TamilNadu is Vijay!
+Chief Minister of TamilNadu is  Thalapathy Vijay!
