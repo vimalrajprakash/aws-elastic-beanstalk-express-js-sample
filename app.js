@@ -1,1 +1,1 @@
-Hello from Vimal's AWS Continuous Delivery Pipeline!
+Chief Minister of TamilNadu is Vijay!
